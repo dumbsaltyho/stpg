@@ -1,4 +1,5 @@
 ## my startpage collection.
+# i lost access to the gaylamcgee account, so it's here now thanks
 #### (formally kamikal.github.io)
 
 ## [god\_dammit](http://stpg.gayla.pw/github/god_dammit/)
